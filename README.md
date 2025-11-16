@@ -12,3 +12,6 @@ https://docs.google.com/document/d/1cxhWxRCI9GfmC5MAM5iWOBDUMUg8ADih/edit?usp=dr
 
 حياة على الطريق 
 https://docs.google.com/document/d/1KYf2sgye9q8JXGtAeDk6G3f1fhTyAMep/edit?usp=drive_link&ouid=103894325332182945051&rtpof=true&sd=true
+
+فيديو حياة على الطريق 
+https://drive.google.com/file/d/1B9eaZ7Z13UQKPWzUDkMJ9czOxR6UpqFI/view?usp=drive_link
